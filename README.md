@@ -1,1 +1,1 @@
-# SocialSAnata
+# SocialSanata
